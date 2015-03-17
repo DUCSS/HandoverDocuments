@@ -29,3 +29,16 @@ The amenities officer is responsible for ensuring that these work and to source 
 As a member of the committee you should take an active role in the society by attending and contributing to the weekly meetings.
 You should also be constantly on the lookout for opportunities to organise events and for people who would be interested in working with DUCSS.
 Examples of this would be meeting people who would be interested in talking to our members or who would be interested in sponsoring an event throughout the year.
+
+
+## Cathal G (PinPin, Kotl) - Amenities 2013-2015
+
+I was amenities officer for two years.
+During that time the room had a complete makeover.
+We removed the microwave, which had never been cleaned and just made the room smell awful.
+We removed the fridge, which only heated up the room and smelt of mould. We also reorganised the layout of the room so our members had more room to sit down and relax.
+
+During my time as amenities officer I got a new sofa for the room, purchased and donated books, lent my whiteboards and Chromecast to the room, built the library section of the website, catalogued all the books and got the carpet fixed (which eventually led onto the room being painted).
+
+As a member of the committee I helped organise events.
+In my first year I set up and ran the annual table quiz,
